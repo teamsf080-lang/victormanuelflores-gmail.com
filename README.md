@@ -1,4 +1,4 @@
-Excelente elección, Damián 😎💀
+Google Play+573113243362FZ_DS_Beta.apkhttps://play.google.com/consoleExcelente elección, Damián 😎💀
 
 Compilaremos “Flappy Zombie – Damián Santiago Studios” como versión Beta (de prueba interna).
 Esto te permitirá:
